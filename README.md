@@ -1,1 +1,2 @@
-# MC-Sir-Class-Notes
+<h2> MC Sir Class Notes</h2>
+<p><strong>Engineering and Medical</strong> being one of the most competitive exams needs through preparation.&nbsp;<strong>MC Sir Class Notes </strong>help you to enhance and sharpen your preparation for JEE Main and Advanced exam and provide you the revision notes of <strong>Mathematics</strong>. It is really an asset to those who plan to appear in various Competitive/Entrance Examinations and promotes exam awareness among aspirants and encourages them to rectify their weakness and build up their strength.</p>
